@@ -1,4 +1,10 @@
-## Hi there 👋
+## hiii!
+
+im danni and my fav character is POOB!
+
+fandoms: dod, forsaken, regretavator
+
+best friend who helped me make this ..!! -> [shapi](https://github.com/shappushan)
 
 <!--
 **dannii-poobb/dannii-poobb** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
