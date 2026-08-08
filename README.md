@@ -6,6 +6,8 @@ fandoms: dod, forsaken, regretavator
 
 best friend who helped me make this ..!! -> [shapi](https://github.com/shappushan)
 
+i like to draw and i love cats and the color BLUE!
+
 <!--
 **dannii-poobb/dannii-poobb** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
